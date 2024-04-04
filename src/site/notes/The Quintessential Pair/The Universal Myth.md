@@ -1,0 +1,27 @@
+---
+{"dg-publish":true,"permalink":"/the-quintessential-pair/the-universal-myth/"}
+---
+
+Across Vatria exist many cultures and many peoples. From the snowy, desolate peaks of Auril to the deserts of Reese, to the urban sprawls of The Apex, to the unknown lands of the Exellian Isles, no two cultures are the same. The cultures, the norms, the myths, the people - there may be some overlap, sure. But, there is one story that exists in exact similarity between every group you may compare.
+
+This myth is referred to as scholars as "The Lifesong." It was named as it was tradition in the Zenithene Empire for fathers to compose a song for their unborn child. Using various baby movements in the womb, unconscious ramblings of the mother, and the estimate of the baby's gender as the triad for prime inspiration, they must write with instinct. Regardless of family status, there are musicians hired by the Empire solely to play the father's Lifesong as the baby is born.
+
+The Lifesong was to be the first thing heard by a baby, so as to let it know it will live a prosperous life with the perfect family. Thus, babies born without a Lifesong are pariahs.
+
+Since the Lifesong was the first thing to be heard, they called this myth "The Lifesong" of the world, as every culture would learn it in it's infancy. This myth depicts the primeval twins: [[The Quintessential Pair/The Progenitor\|The Progenitor]] and [[The Quintessential Pair/The Unraveler\|The Unraveler]], the creation of Vatria, the Cataclysm, and their mutual demise.
+
+This created the gaping hole that the capitol building of the Zenithene is built upon. Called "The Wound," this pit has no bottom, and is 900 feet in diameter. Water pours into it from the side that sits on the ocean, and from the other side, citizens throw coins into it for good tidings. The tower that houses the Zenith Emperor, and the Academy of the Nine is built on the edge of this hole, with its foundation in the ocean.
+
+For whatever reason, this myth is told within ever culture, and originates very early on. Scholars estimate it could be one of three things. The first: a universal unconscious, referred to by Aeotalist as the Oswald, which the story of the start of the world can be understood, and it only turns up in every culture because people talk about it. The second: it is residual energy from the Cataclysm. The Cataclysm lead to time distortions for many races and societies.
+
+It would describe the Progenitor's elaborate weaves of tapestry, and the Unraveler's intertwining discord into the weave. It was told that regardless of how beautiful the tapestry, the Unraveler's machinations would result in the tapestry being undone, and ending in a ruinous tangle of threads.
+
+After many tapestries, the Progenitor made a trap - a weave designed to ensnare the Unraveler's sabotage, where it would ensnare the Unraveler as it weaved pollutants into the thread. The trap worked, and the Unraveler was thrust into a tapestry in which it had no power, in which there were no weaves that would spell the end of the piece. The Progenitor would finish this tapestry, making it the first one to ever end in a proper border, and not in an unsalvageable mess of thread. The Progenitor weaved this tapestry into a hell made specifically for it's twin. The Progenitor called this tapestry: [[The Quintessential Pair/Exellia (Dimension)\|Exellia]]
+
+With the Unraveler captured, the Progenitor begun work on it's magnum opus. It began working on Vatria. It's most complicated creation yet, Vatria would span many millennia. Thus the world ran its course and things played out as they did. Eventually, something was wrong. Instead of life proceeding in an evolutionary manner, two apex predators preyed on the lands. These would be the Primordials and the Prophesized. The Primordials were incomprehensible monsters, with immense power. The Prophesized were humanoid creatures with great technology. Many ruins remain in Vatria now. The technology of the Prophesized manifested itself into Radium, a powerful material infused with Ante Bellum magics.
+
+Eventually, intrigued yet frustrated by these species, the Progenitor weaved itself into the tapestry. Now inside Vatria, the Progenitor found the issue. When it was weaved into Exellia, it had left artifacts of itself on the needle of the Progenitor. By sheer luck, enough of it was weaved into Vatria that it could now sow discord. Thus, began the Cataclysm.
+
+Their war was fought for one year, under current metrics. Every day of their battle drastically remolded the world. The ruins of the Prophesized we find today are buried under hundreds of feet of substrate due to this battle. The ocean changed its color multiple times. Wildlife went extinct every minute. Species of wildlife were generated from nothingness sporadically. Fossils found today can sometimes be incredibly mismatched: the same creature could have a chicken-bone for a thigh and for its shin it could have a bone 8 inches in diameter. Nothing was sacred.
+
+After a grueling 500 days of battle, the Progenitor was able to unweave the tapestry from the inside, and draw out the contaminated thread of the Unraveler. Now, the fabric of reality sat in the Progenitor's hands, in the world made of the very material. Both terribly wounded, the Unraveler made a move to kill the Progenitor, and preserve the thread it lived upon. The Progenitor, in retaliation, absorbed this thread into it's own, trapping the Epilogue inside itself, but dying simultaneously.
