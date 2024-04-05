@@ -1,5 +1,5 @@
 ---
-{"dg-publish":true,"permalink":"/fmc-operatives/notable-fmc-figures/"}
+{"dg-publish":true,"permalink":"/fmc-operatives/notable-fmc-figures/","noteIcon":""}
 ---
 
 **Jacques Meliour** - First Offensive Famed Fighter, Established Rhodes
