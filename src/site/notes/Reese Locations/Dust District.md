@@ -1,5 +1,5 @@
 ---
-{"dg-publish":true,"permalink":"/reese-locations/dust-district/"}
+{"dg-publish":true,"permalink":"/reese-locations/dust-district/","noteIcon":""}
 ---
 
 Was built as an extension settlement to Rhodes in the year 875.
