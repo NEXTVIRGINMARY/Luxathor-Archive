@@ -1,0 +1,39 @@
+---
+{"dg-publish":true,"permalink":"/exellian-isles-mystics/accursed-keviah/","noteIcon":""}
+---
+
+The former life of [[PCs/Keviah\|Keviah]], before his fall and banishment.
+
+In the year 541, the man who is now Keviah started his life in obscurity. He was born to a married couple on [[Exellian Isles, Mystics/The Exellian Isles\|The Exellian Isles]], and was one of two twins. His mother was called Ca'thrys - which translated roughly to "Unrelenting Care." His father was called Thyurn - which translated roughly to "Immense Nurture." When they were born, their parents scried their blood, and found that they were destined for greatness. They knew the collectivist culture of  [[Exellian Isles, Mystics/The Exellian Mystics\|The Exellian Mystics]] would not allow them to raise their own children; thinking they'd be corrupted, the parents hid the children from the rest of the tribe.
+
+Eventually,  [[Exellian Isles, Mystics/The Exellian Mystics\|The Exellian Mystics]] discovered the children. The cultists raided the house, and once inside, inspected the children. They speculated the blood, while great, was not pooled equally. One child was destined for greatness, with a wealth of magic in blood. The other was destined for corruption, with an abnormal absense of magic in blood. They deemed the child who would become [[Tytheradt\|Tytheradt]] the "Blessed Keviah," and stole him away to become the Keviah. The other - Keviah - was left for dead. Ca'thrys and Thyurn would be returning to their beachside hut, tucked away in foliage, to find a group of [[Exellian Isles, Mystics/Oraculaneum (Rank)\|Oraculaneum (Rank)]] and their [[Exellian Isles, Mystics/Reinhath (Rank)\|Reinhath (Rank)]] raiding the house. The parents would strike out with their magic, Ca'thrys creating 9 feet tall daggers of ice that erupt from the sand into the Reinhaths. Thyurn would move the sands into massive pillars to block the Oraculaneum's path. This would not be enough, as they would eventually fall.
+
+Oraculaneum Ghros, the one who orcestrated the raid, would see the passion present in the family line, and would put the lovers into a Grave. Their souls would be bound in memoriam in a gyroscope-type item. Ghros would raze their house, and place the Tomb here. He would then enroll the other twin - into the typical academic system of the Exellian Isles. A mentor and apprentice system, this child would be the apprentice of Ghros' own son - Reinhath Xel - and his history would be erased.
+
+Over his apprenticeship to Reinhath Xel, the Accursed Keviah - called Apprentis-Xel, as tradition - would flourish. He started channeling magic physically, but understanding the power and passion in his magic, and how much was locked behind his history, Xel started growing him more and more powerful. 
+
+More than he was allowed.
+
+Xel was not fond of the governing system of the Isles, and whilst teaching Apprentis-Xel , he would sing his criticisms of the [[Exellian Isles, Mystics/Oraculaneum (Rank)\|Oraculaneum (Rank)]] and their elitist ring. Apprentis-Xel would follow, not passionately, but passively. This training would continue, growing Apprentis-Xel  into a powerful and versatile magic user. He would plateau though. 
+
+During this plateau, Xel would urge his father to send the two on an outing. His father planned to send them to the outskirts in Crescens, but Xel abused his fathers love to send them to Othohan. Going there, Xel would evaluate Apprentis-Xel's mettle. Here, Xel would push him, ensuring he was both mentally and physically strained, but capable.
+
+At the end of the year there, Xel would steal away some cold alcohol from the Empire, and bring Apprentis-Xel to the peak. Here, the two would finally relax, and Xel would project a mental image of all the events Apprentis-Xel had yet to learn. Xel walked Apprentis-Xel through his birth. Through the life of Ca'thrys and Thyurn. Through the raid. Through the slaughter of Ca'thrys and Thyurn. Through the events to date of Tytheradt. 
+
+Apprentis-Xel  would be enraged, and Xel would encourage him. Xel would encourage a duel, and the two would spend multiple weeks ravaging the continent. It inevitably resulted in Apprentis-Xel gaining the advantage, and cutting down Xel. Weakened and burnt, Xel would encourage Apprentis-Xel to travel to the Exellian Isles, and start a revolution, free his brother. Xel told him of a few Reinhaths who would welcome their "Accursed Keviah," who would support him, and help rally the people behind him as a weapon. The two shared parting words, and the Accursed Keviah, for the first time hearing his title, would execute Xel.
+
+30 years after the slaughter of his parents, he would return home no longer Apprentis-Xel, but the Accursed Keviah. Claiming Xel was in a ritual, he would return to the location Xel told him of. Here, he was welcomed by 6 Reinhaths who believed in his cause. He campaigned a change for freedom. Claiming that the Oraculaneum's were overly elitist, he would advocate for the removal of the Oraculaneums and Keviah entirely, and that all would be welcome to commune. Nearly 40% of the Mystics would rally behind him over time.
+
+This was practically a war, and would continue until 573 Postmortem. He was ambushed by Ghros, who had been memorialized in the Hall of the Keviah. They would honor Oraculaneum in side halls, and Keviah in the main halls. When they were ready to retire, they would be returned to the most idealized form of themselves, and then petrified into a statue. The current Oraculaneum sought to revive Ghros so that the man who started the Accursed Keviah's warpath could end it. That he did.
+
+Captured by Ghros and the Oraculaneum, the Accursed Keviah was held for 39 days and 39 nights in a sensory deprivation cell, under an anti-magic field. This cell was underneath the edge of the Wytherial Focus. After this imprisonment, he would be brought to a ritual circle, where the Oraculaneum prepared a ritual to undo his corporeal form, and bind him to the fabric of Vatria, suffering forever powerless. The only memory they'd maintained was the word "Keviah," a mockery from the Oraculaneum. 
+
+During this ritual, though, he would be brought out of the anti-magic field, and in this moment, the Accursed Keviah would exploit his freedom to use magic. He would secretly cast a spell to release his brother from the Wytherium Engine, and as he cast it he would succumb to the nothingness.
+
+His brother would be freed, and stumble out of it, vowing to save him. 
+
+Between his expellment and his resurrection, Keviah would be the motivation for all of Tytheradt's deeds. Tytheradt would travel to The Apex, and would manipulate Zenithene culture to become the Emperor, circumventing the entire elitist ring and process typical of it. Using this as a vehicle of his desires, Tytheradt would then plunge into The Wound, as typical, and would commune with the Progenitor. Tytheradt would rend flesh from the Progenitor, demanding that his brother be restored. The Progenitor would then retaliate. Tytheradt - in the face of eternity - would forgo his mortality. This would start his lichdom.
+
+Afterwards, Tytheradt would rule for 10 years, until 723. After he was satisfied, he would steal a sizeable amount from the Empire's Treasury, and would proceed with his machinations. In 840, in the Universal Unconscious he would find his brother almost fully remade. He would then begin the FMC, and start colonizing Reese to find Keviah.
+
+Over 300 years later, in mid-889 PM, Keviah would reawaken, the only thing left that he remembered would be Keviah - what he thought to be his name. He awoke with Longclaw - a piece of contaminated Living Metal from [[Tytheradt\|Tytheradt]] to mold it into a Sword-Key. 
