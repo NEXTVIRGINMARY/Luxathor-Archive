@@ -1,5 +1,5 @@
 ---
-{"dg-publish":true,"permalink":"/reese-locations/charwood/daria-deay/"}
+{"dg-publish":true,"permalink":"/reese-locations/charwood/daria-deay/","noteIcon":""}
 ---
 
 [[The Inheiritors/The Inheiritors (Group)\|The Inheiritors (Group)]] member
