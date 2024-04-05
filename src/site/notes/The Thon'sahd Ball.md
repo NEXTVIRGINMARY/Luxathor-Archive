@@ -1,5 +1,5 @@
 ---
-{"dg-publish":true,"permalink":"/the-thon-sahd-ball/"}
+{"dg-publish":true,"permalink":"/the-thon-sahd-ball/","noteIcon":""}
 ---
 
 [[The Thon'sahd Ball\|The Thon'sahd Ball]] is what is known as the Conception of the FMC in the public eye. Taking place in 99 Rthna 846 PM, this is where [[Tytheradt\|Tytheradt]] presented the value the FMC would produce through Bor and the Retainer. This was also the first instance of the name "Reese" being used for the desert continent in history. 
