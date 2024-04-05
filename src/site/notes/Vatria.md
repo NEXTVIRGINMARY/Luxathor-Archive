@@ -1,5 +1,5 @@
 ---
-{"dg-publish":true,"permalink":"/vatria/","noteIcon":""}
+{"dg-publish":true,"permalink":"/vatria/"}
 ---
 
 vatria :)
