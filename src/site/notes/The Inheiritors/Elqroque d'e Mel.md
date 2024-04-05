@@ -1,5 +1,5 @@
 ---
-{"dg-publish":true,"permalink":"/the-inheiritors/elqroque-d-e-mel/"}
+{"dg-publish":true,"permalink":"/the-inheiritors/elqroque-d-e-mel/","noteIcon":""}
 ---
 
 Member of [[The Inheiritors/The Unraveler (Inheiritor)\|The Unraveler (Inheiritor)]]
