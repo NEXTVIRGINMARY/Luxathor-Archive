@@ -1,5 +1,5 @@
 ---
-{"dg-publish":true,"permalink":"/exellian-isles-mystics/keviah-rank/","noteIcon":""}
+{"dg-publish":true,"permalink":"/exellian-isles-mystics/keviah-rank/"}
 ---
 
 A rank of Oracle.
