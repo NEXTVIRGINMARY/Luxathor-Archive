@@ -1,5 +1,5 @@
 ---
-{"dg-publish":true,"permalink":"/p-cs/serendipitous-chupacabra/","noteIcon":""}
+{"dg-publish":true,"permalink":"/p-cs/serendipitous-chupacabra/"}
 ---
 
 Son of [[The Inheiritors/Noel Chupacabra\|Noel Chupacabra]] and Anastasia
