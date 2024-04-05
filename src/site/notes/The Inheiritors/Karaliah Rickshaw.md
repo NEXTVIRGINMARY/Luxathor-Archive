@@ -1,5 +1,5 @@
 ---
-{"dg-publish":true,"permalink":"/the-inheiritors/karaliah-rickshaw/"}
+{"dg-publish":true,"permalink":"/the-inheiritors/karaliah-rickshaw/","noteIcon":""}
 ---
 
 Was once Karali, and lived in the Wrathcarved Mountains. 
