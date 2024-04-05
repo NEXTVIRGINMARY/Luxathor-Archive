@@ -1,5 +1,5 @@
 ---
-{"dg-publish":true,"permalink":"/reese-locations/charwood/esriel/"}
+{"dg-publish":true,"permalink":"/reese-locations/charwood/esriel/","noteIcon":""}
 ---
 
 Other half of [[The Inheiritors/Lancaster\|Lancaster]], made from [[Wytherius\|Wytherius]]
