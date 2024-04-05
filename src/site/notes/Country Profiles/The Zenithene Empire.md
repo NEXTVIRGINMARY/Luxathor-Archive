@@ -1,5 +1,5 @@
 ---
-{"dg-publish":true,"permalink":"/country-profiles/the-zenithene-empire/","noteIcon":""}
+{"dg-publish":true,"permalink":"/country-profiles/the-zenithene-empire/"}
 ---
 
 **The Basics**
