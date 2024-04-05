@@ -1,5 +1,5 @@
 ---
-{"dg-publish":true,"permalink":"/exellian-isles-mystics/the-engram-assassins/","noteIcon":""}
+{"dg-publish":true,"permalink":"/exellian-isles-mystics/the-engram-assassins/"}
 ---
 
 A group of designated assassins, formed by the [[Exellian Isles, Mystics/The Exellian Mystics\|The Exellian Mystics]] in 841 PM. Built off the insurgent group "The Apostate Sept," they were formed by the [[Exellian Isles, Mystics/Keviah (Rank)\|Keviah (Rank)]] after [[Tytheradt\|Tytheradt]] was detected to be active and alive, and was building the FMC. Their goal was to kill him, however, at the Thon'sahd Ball in 846 PM, they were crushed. 
