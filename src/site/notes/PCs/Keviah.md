@@ -1,5 +1,5 @@
 ---
-{"dg-publish":true,"permalink":"/p-cs/keviah/","noteIcon":""}
+{"dg-publish":true,"permalink":"/p-cs/keviah/"}
 ---
 
 Unknown Brother of [[Tytheradt\|Tytheradt]]
