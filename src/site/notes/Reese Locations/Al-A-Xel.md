@@ -1,5 +1,5 @@
 ---
-{"dg-publish":true,"permalink":"/reese-locations/al-a-xel/"}
+{"dg-publish":true,"permalink":"/reese-locations/al-a-xel/","noteIcon":""}
 ---
 
 Al-A-Xel is a refugee colony from [[Exellian Isles, Mystics/The Exellian Isles\|The Exellian Isles]], and declares themselves their own sovereign. Their countries full name is Al-A-C'uhr-Dien-Syf-Nu'muhcr-Xel, translating to The Newfreed of the Savior of the Savior Xel, Foreverborn. The Capitol City is Al-A-Xel, translating Xel, Foreverborn.
