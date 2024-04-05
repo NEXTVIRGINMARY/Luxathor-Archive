@@ -1,5 +1,5 @@
 ---
-{"dg-publish":true,"permalink":"/the-inheiritors/huck/"}
+{"dg-publish":true,"permalink":"/the-inheiritors/huck/","noteIcon":""}
 ---
 
 Member of [[The Inheiritors/The Inheiritors (Group)\|The Inheiritors (Group)]]
