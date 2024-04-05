@@ -1,4 +1,4 @@
 ---
-{"dg-publish":true,"permalink":"/the-quintessential-pair/exellia-dimension/"}
+{"dg-publish":true,"permalink":"/the-quintessential-pair/exellia-dimension/","noteIcon":""}
 ---
 
