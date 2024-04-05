@@ -1,5 +1,5 @@
 ---
-{"dg-publish":true,"permalink":"/exellian-isles-mystics/wytherium-engine/","noteIcon":""}
+{"dg-publish":true,"permalink":"/exellian-isles-mystics/wytherium-engine/"}
 ---
 
 A powerful creation that focuses a [[Exellian Isles, Mystics/Keviah (Rank)\|Keviah (Rank)]] into the timestreams to be guided by [[Wytherius\|Wytherius]]
