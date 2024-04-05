@@ -1,5 +1,5 @@
 ---
-{"dg-publish":true,"permalink":"/the-quintessential-pair/godsbane-artefacts/"}
+{"dg-publish":true,"permalink":"/the-quintessential-pair/godsbane-artefacts/","noteIcon":""}
 ---
 
 A set of 3 relics, currently possessed by [[Exellian Isles, Mystics/The Engram Assassins\|The Engram Assassins]]. These relics are ancient weapons, preserved from the Catacleyne Era. When the Prophesized began falling to the Cataclysm, they forged weapons to kill the Quintessential Dyad ([[The Quintessential Pair/The Progenitor\|The Progenitor]] and [[The Quintessential Pair/The Unraveler\|The Unraveler]]). These would be three artefacts: Ephemirene Focusing Lens, The Metaphysical Tether, and the Soulknife Liaison. 
