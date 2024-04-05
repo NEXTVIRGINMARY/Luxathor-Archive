@@ -1,5 +1,5 @@
 ---
-{"dg-publish":true,"permalink":"/some-characters/daenogoth/"}
+{"dg-publish":true,"permalink":"/some-characters/daenogoth/","noteIcon":""}
 ---
 
 Daenogoth is a 5-armed demon that is currently bound to the Burbraic Theater. He is also referred to as "The One True Scream," "Misophobia,"  "Too Sharp I Cannot Dream," and "Amygdala."
