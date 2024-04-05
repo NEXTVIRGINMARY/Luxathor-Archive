@@ -1,5 +1,5 @@
 ---
-{"dg-publish":true,"permalink":"/fmc-operatives/kolt/"}
+{"dg-publish":true,"permalink":"/fmc-operatives/kolt/","noteIcon":""}
 ---
 
 Goblin with a life debt and a love for [[FMC Operatives/Edvard von Paten\|Edvard von Paten]]
