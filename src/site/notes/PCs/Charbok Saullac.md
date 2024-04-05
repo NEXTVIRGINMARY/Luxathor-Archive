@@ -1,5 +1,5 @@
 ---
-{"dg-publish":true,"permalink":"/p-cs/charbok-saullac/"}
+{"dg-publish":true,"permalink":"/p-cs/charbok-saullac/","noteIcon":""}
 ---
 
 Son of [[Atilus/Hebi\|Hebi]]
