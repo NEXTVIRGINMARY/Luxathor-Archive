@@ -1,5 +1,5 @@
 ---
-{"dg-publish":true,"permalink":"/reese-locations/charwood/siamon-l-ebarge/","noteIcon":""}
+{"dg-publish":true,"permalink":"/reese-locations/charwood/siamon-l-ebarge/"}
 ---
 
 Grandfather of [[Reese Locations/Charwood/Samus Sam-Squant'chh L'ebarge\|Samus Sam-Squant'chh L'ebarge]]
