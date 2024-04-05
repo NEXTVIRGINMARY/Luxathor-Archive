@@ -1,5 +1,5 @@
 ---
-{"dg-publish":true,"permalink":"/reese-locations/rhodes/"}
+{"dg-publish":true,"permalink":"/reese-locations/rhodes/","noteIcon":""}
 ---
 
 Established at the end of 861 PM, end of First Offensive
