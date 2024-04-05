@@ -1,5 +1,5 @@
 ---
-{"dg-publish":true,"permalink":"/fmc-operatives/bor-hand-of-the-fmc/"}
+{"dg-publish":true,"permalink":"/fmc-operatives/bor-hand-of-the-fmc/","noteIcon":""}
 ---
 
 [REDACTED]
