@@ -1,5 +1,5 @@
 ---
-{"dg-publish":true,"permalink":"/fmc-operatives/edvard-von-paten/"}
+{"dg-publish":true,"permalink":"/fmc-operatives/edvard-von-paten/","noteIcon":""}
 ---
 
 Edvard von Paten is a human male born in 843 Postmortem, currently aged 46 years, hailing from the Zenithene Empire. The von Paten family was, previously, a member of the Nine. That was until 781 Postmortem, when Edvard's father Richtofen von Paten was ousted. Eagan Bruesz abused knowledge of his gambling addiction to steal his demarcation, and get their way into the Nine, dishonoring his father's lifelong effort to overthrow the Bruesz family from the Nine.
