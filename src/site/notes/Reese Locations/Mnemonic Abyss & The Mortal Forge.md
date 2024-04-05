@@ -1,5 +1,5 @@
 ---
-{"dg-publish":true,"permalink":"/reese-locations/mnemonic-abyss-and-the-mortal-forge/"}
+{"dg-publish":true,"permalink":"/reese-locations/mnemonic-abyss-and-the-mortal-forge/","noteIcon":""}
 ---
 
 The Mnemonic Abyss is a tear in Vatria, hidden just a few hundred meters below the seabed. After the Martyrdom Syzygy, the destruction of the Othohan Scar and the Uncharted Regions coalesced in a volatile collection of energy. This deposit sunk into the ocean, and continued to the direct opposite side of Vatria, where it erupted into the Mnemonic Abyss. 
