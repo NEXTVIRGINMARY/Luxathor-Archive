@@ -1,5 +1,5 @@
 ---
-{"dg-publish":true,"permalink":"/exellian-isles-mystics/the-exellian-isles/"}
+{"dg-publish":true,"permalink":"/exellian-isles-mystics/the-exellian-isles/","noteIcon":""}
 ---
 
 Named after Exellia, prison of The Unraveler
