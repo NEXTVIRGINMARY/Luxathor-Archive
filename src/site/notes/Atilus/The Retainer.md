@@ -1,5 +1,5 @@
 ---
-{"dg-publish":true,"permalink":"/atilus/the-retainer/","noteIcon":""}
+{"dg-publish":true,"permalink":"/atilus/the-retainer/"}
 ---
 
 The Retainer is the son of [[Atilus/Hebi\|Hebi]], and brother to [[PCs/Charbok Saullac\|Charbok Saullac]]. In the year 787, the son is sold into Zenithene Slavery. He was possessed by the Emperor for 3 years, eventually acquired by [[Tytheradt\|Thyra Will]], the Ten-Year Emperor, thought to be dead. 
