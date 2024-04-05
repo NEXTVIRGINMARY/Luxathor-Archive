@@ -1,5 +1,5 @@
 ---
-{"dg-publish":true,"permalink":"/the-drowned-king/"}
+{"dg-publish":true,"permalink":"/the-drowned-king/","noteIcon":""}
 ---
 
 [[Wytherius\|Wytherius]]'s mortal apparition
