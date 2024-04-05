@@ -1,5 +1,5 @@
 ---
-{"dg-publish":true,"permalink":"/tytheradt/","noteIcon":""}
+{"dg-publish":true,"permalink":"/tytheradt/"}
 ---
 
 In the year 541, Tytheradt started his life in obscurity. He was born to a married couple on [[Exellian Isles, Mystics/The Exellian Isles\|The Exellian Isles]], and was one of two twins. His mother was called Ca'thrys - which translated roughly to "Unrelenting Care." His father was called Thyurn - which translated roughly to "Immense Nurture." When they were born, their parents scried their blood, and found that they were destined for greatness. They knew the collectivist culture of  [[Exellian Isles, Mystics/The Exellian Mystics\|The Exellian Mystics]] would not allow them to raise their own children; thinking they'd be corrupted, the parents hid the children from the rest of the tribe.
