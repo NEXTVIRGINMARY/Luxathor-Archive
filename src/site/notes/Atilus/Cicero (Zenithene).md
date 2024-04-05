@@ -1,5 +1,5 @@
 ---
-{"dg-publish":true,"permalink":"/atilus/cicero-zenithene/","noteIcon":""}
+{"dg-publish":true,"permalink":"/atilus/cicero-zenithene/"}
 ---
 
 A slave sold to the Zenithene Empire by [[Atilus/Hebi\|Hebi]]'s Pact. Cicero was close friends with [[Atilus/The Retainer\|The Retainer]]. Cicero did not know his own name, and took the name Cicero. The Retainer made friends with him quickly, as he was distressed, and despite Cicero not knowing who he is, he took in the Retainer.
