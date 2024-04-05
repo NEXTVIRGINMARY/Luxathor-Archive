@@ -1,5 +1,5 @@
 ---
-{"dg-publish":true,"permalink":"/thri-kreen/"}
+{"dg-publish":true,"permalink":"/thri-kreen/","noteIcon":""}
 ---
 
 Ahn-Kiin Thri-Kreen - Subterranean, have the two syllable names i.e. Tink-Cha
