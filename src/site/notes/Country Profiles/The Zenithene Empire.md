@@ -26,9 +26,9 @@
 		Such bloodlines held latent power and are still active today, some examples being the Herrias, the Neinwalds, the Grildvalkes, and the Dahlics. The Regent Kings still claim this power (Regardless of name or how diluted it is)
 
 **Population**
-- Estimated over 4 Million over all of Herria as of 850 PM. 
+- Estimated over 40 Million over all of Herria as of 850 PM. 
 - Dense in The Apex and the Author's Peninsula, fairly rural everywhere else save for Thon'sahd Bay.
-- 1% in Upper Class, 15% in Middle Class, 68% in Lower Class, 7% enslaved, 9% in Military
+- 1% in Upper Class, 15% in Middle Class, 68% in Lower Class, 7% enslaved (77k Atilans), 9% in Military
 
 **Religion - Unitalists**
 - Aeotalist Church formed by Kyynren Herria, Tyol Nienwald, and Lucan Thon'sahd, along with some other nobles.
