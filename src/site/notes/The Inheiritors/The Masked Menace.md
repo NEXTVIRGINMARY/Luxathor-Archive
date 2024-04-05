@@ -1,5 +1,5 @@
 ---
-{"dg-publish":true,"permalink":"/the-inheiritors/the-masked-menace/","noteIcon":""}
+{"dg-publish":true,"permalink":"/the-inheiritors/the-masked-menace/"}
 ---
 
 Member of [[The Inheiritors/The Unraveler (Inheiritor)\|The Unraveler (Inheiritor)]]
