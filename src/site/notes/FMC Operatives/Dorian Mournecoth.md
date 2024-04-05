@@ -1,5 +1,5 @@
 ---
-{"dg-publish":true,"permalink":"/fmc-operatives/dorian-mournecoth/","noteIcon":""}
+{"dg-publish":true,"permalink":"/fmc-operatives/dorian-mournecoth/"}
 ---
 
 Dorian Mournecoth, born Dir Ean Lang, was a drow native to the Wrathcarved in Reese. Sometime during his late teens, his brother Wou Ief Lang disappeared without a trace. Dorian joined the FMC during the First Offensive to try to find his brother. Initially, this was meant to be a short enrollment until Wou Ief's fate was found, but Dorian got too caught up in it all, and is in too deep.
