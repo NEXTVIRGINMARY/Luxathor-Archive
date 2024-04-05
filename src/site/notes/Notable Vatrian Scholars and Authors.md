@@ -1,5 +1,5 @@
 ---
-{"dg-publish":true,"permalink":"/notable-vatrian-scholars-and-authors/"}
+{"dg-publish":true,"permalink":"/notable-vatrian-scholars-and-authors/","noteIcon":""}
 ---
 
 **Doctor Euwan Heinrich** - Medical Doctor, famed for writing "Dr Heinrich's Guide to Medicine." - Very well respected for his pioneering in medicine and it's interaction with theology. from Zenithene, currently in Duelian's Scholar Spire at Empress Grildvalke University
