@@ -1,5 +1,5 @@
 ---
-{"dg-publish":true,"permalink":"/exellian-isles-mystics/wytheria-rank/"}
+{"dg-publish":true,"permalink":"/exellian-isles-mystics/wytheria-rank/","noteIcon":""}
 ---
 
 A new rank for [[Exellian Isles, Mystics/The Exellian Mystics\|The Exellian Mystics]] to rule [[Exellian Isles, Mystics/The Exellian Isles\|The Exellian Isles]]. This rank was devised by [[Exellian Isles, Mystics/The Engram Assassins\|The Engram Assassins]], and approved by the standing [[Exellian Isles, Mystics/Keviah (Rank)\|Keviah (Rank)]]. The Wytheria rank is meant to make [[Exellian Isles, Mystics/Wytherium Engine\|Wytherium Engine]] obsolete, by having those who kill [[Wytherius\|Wytherius]] come in and rule in place of it. Instead of the Engine and the Keviah to commune and share its will, the highest power will be the Wytheria.
