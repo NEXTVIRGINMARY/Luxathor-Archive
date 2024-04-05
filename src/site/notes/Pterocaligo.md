@@ -1,5 +1,5 @@
 ---
-{"dg-publish":true,"permalink":"/pterocaligo/"}
+{"dg-publish":true,"permalink":"/pterocaligo/","noteIcon":""}
 ---
 
 **Also known as: Gloomflyer**
