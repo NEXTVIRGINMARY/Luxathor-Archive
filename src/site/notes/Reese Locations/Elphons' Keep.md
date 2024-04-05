@@ -1,5 +1,5 @@
 ---
-{"dg-publish":true,"permalink":"/reese-locations/elphons-keep/","noteIcon":""}
+{"dg-publish":true,"permalink":"/reese-locations/elphons-keep/"}
 ---
 
 Northeast of Rhodes, directly east of Charwood, there sits a lone fort. Sat to bear the future for millennia, Elphons' Keep has only known occupants thrice. At it's heart: The Shrine of Time, an altar to the ancient god of memory Uiy. Not even the Prophesized would have built this shrine, it willed itself on its own, a symbol of one of [[The Vetus Six\|the Vetus Six]].
