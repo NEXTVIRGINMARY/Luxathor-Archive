@@ -1,5 +1,5 @@
 ---
-{"dg-publish":true,"permalink":"/reese-locations/duelian/"}
+{"dg-publish":true,"permalink":"/reese-locations/duelian/","noteIcon":""}
 ---
 
 City of Spires
