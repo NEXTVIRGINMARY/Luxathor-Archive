@@ -1,5 +1,5 @@
 ---
-{"dg-publish":true,"permalink":"/the-vetus-six/","noteIcon":""}
+{"dg-publish":true,"permalink":"/the-vetus-six/"}
 ---
 
 Six Gods worshipped by the Prophesized, who retained power even through the lack of faith.
