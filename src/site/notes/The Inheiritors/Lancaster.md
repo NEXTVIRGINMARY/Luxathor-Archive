@@ -1,5 +1,5 @@
 ---
-{"dg-publish":true,"permalink":"/the-inheiritors/lancaster/"}
+{"dg-publish":true,"permalink":"/the-inheiritors/lancaster/","noteIcon":""}
 ---
 
 Part of [[The Inheiritors/The Unraveler (Inheiritor)\|The Unraveler (Inheiritor)]]
