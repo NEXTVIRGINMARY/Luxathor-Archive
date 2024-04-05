@@ -1,5 +1,5 @@
 ---
-{"dg-publish":true,"permalink":"/vatrian-timeline/"}
+{"dg-publish":true,"permalink":"/vatrian-timeline/","noteIcon":""}
 ---
 
 **PROGENITORIAN TIME: -** 
