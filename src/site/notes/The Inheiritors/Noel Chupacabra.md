@@ -1,5 +1,5 @@
 ---
-{"dg-publish":true,"permalink":"/the-inheiritors/noel-chupacabra/"}
+{"dg-publish":true,"permalink":"/the-inheiritors/noel-chupacabra/","noteIcon":""}
 ---
 
 Father of Serendipitous, husband of Anastasia
