@@ -1,5 +1,5 @@
 ---
-{"dg-publish":true,"permalink":"/project-delphi/","noteIcon":""}
+{"dg-publish":true,"permalink":"/project-delphi/"}
 ---
 
 Project Delphi is the codename for [[Tytheradt\|Tytheradt]]'s ultimate plan. No one is high enough to view the details of this plan, however Neror Suarez, Harlon Hanburg, Danier Golwig, Persephone de Rala, Friedmont Closteun, and Bor are all aware that this project only involves Thyra Wesson.
