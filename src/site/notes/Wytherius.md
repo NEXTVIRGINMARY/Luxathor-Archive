@@ -1,5 +1,5 @@
 ---
-{"dg-publish":true,"permalink":"/wytherius/","noteIcon":""}
+{"dg-publish":true,"permalink":"/wytherius/"}
 ---
 
 God of Water, Fate, and Time. Fate and Time in the way that water will erode whatever it rushes against.
