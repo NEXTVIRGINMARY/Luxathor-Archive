@@ -1,5 +1,5 @@
 ---
-{"dg-publish":true,"permalink":"/country-profiles/the-regency-crown/"}
+{"dg-publish":true,"permalink":"/country-profiles/the-regency-crown/","noteIcon":""}
 ---
 
 **The Basics**
