@@ -1,5 +1,5 @@
 ---
-{"dg-publish":true,"permalink":"/fmc-operatives/donatello-ossaen-grildvalke/","noteIcon":""}
+{"dg-publish":true,"permalink":"/fmc-operatives/donatello-ossaen-grildvalke/"}
 ---
 
 Identity of [[The Inheiritors/The Masked Menace\|The Masked Menace]]
