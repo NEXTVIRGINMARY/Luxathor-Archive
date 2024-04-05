@@ -1,5 +1,5 @@
 ---
-{"dg-publish":true,"permalink":"/atilus/hebi/","noteIcon":""}
+{"dg-publish":true,"permalink":"/atilus/hebi/"}
 ---
 
 Current King of Atilus. Husband to Kaa; father of [[PCs/Charbok Saullac\|Charbok Saullac]], Naloth, Jax, Kira, Bindi, Minerva, and the artist formally known as [[Atilus/The Retainer\|The Retainer]]. 
