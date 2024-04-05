@@ -1,5 +1,5 @@
 ---
-{"dg-publish":true,"permalink":"/the-quintessential-pair/the-unraveler/"}
+{"dg-publish":true,"permalink":"/the-quintessential-pair/the-unraveler/","noteIcon":""}
 ---
 
 Opposite of [[The Quintessential Pair/The Progenitor\|The Progenitor]]
