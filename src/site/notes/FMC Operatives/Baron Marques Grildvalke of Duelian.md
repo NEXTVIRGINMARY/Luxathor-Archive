@@ -1,5 +1,5 @@
 ---
-{"dg-publish":true,"permalink":"/fmc-operatives/baron-marques-grildvalke-of-duelian/"}
+{"dg-publish":true,"permalink":"/fmc-operatives/baron-marques-grildvalke-of-duelian/","noteIcon":""}
 ---
 
 Marques Grildvalke is the brother of standing Empress Aphelia Morne, of House Grildvalke and the husband of Donatello Ossaen-Grildvalke. 
