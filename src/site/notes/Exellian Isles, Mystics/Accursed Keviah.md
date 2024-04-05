@@ -1,5 +1,5 @@
 ---
-{"dg-publish":true,"permalink":"/exellian-isles-mystics/accursed-keviah/"}
+{"dg-publish":true,"permalink":"/exellian-isles-mystics/accursed-keviah/","noteIcon":""}
 ---
 
 The former life of [[PCs/Keviah\|Keviah]], before his fall and banishment.
