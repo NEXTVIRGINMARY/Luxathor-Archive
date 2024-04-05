@@ -1,5 +1,5 @@
 ---
-{"dg-publish":true,"permalink":"/the-inheiritors/the-unraveler-inheiritor/"}
+{"dg-publish":true,"permalink":"/the-inheiritors/the-unraveler-inheiritor/","noteIcon":""}
 ---
 
 Successor to [[The Inheiritors/The Progenitor (Inheiritor)\|The Progenitor (Inheiritor)]]
