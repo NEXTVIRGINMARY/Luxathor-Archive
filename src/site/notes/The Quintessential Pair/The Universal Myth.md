@@ -1,5 +1,5 @@
 ---
-{"dg-publish":true,"permalink":"/the-quintessential-pair/the-universal-myth/"}
+{"dg-publish":true,"permalink":"/the-quintessential-pair/the-universal-myth/","noteIcon":""}
 ---
 
 Across Vatria exist many cultures and many peoples. From the snowy, desolate peaks of Auril to the deserts of Reese, to the urban sprawls of The Apex, to the unknown lands of the Exellian Isles, no two cultures are the same. The cultures, the norms, the myths, the people - there may be some overlap, sure. But, there is one story that exists in exact similarity between every group you may compare.
