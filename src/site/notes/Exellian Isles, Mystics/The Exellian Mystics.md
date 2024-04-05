@@ -1,5 +1,5 @@
 ---
-{"dg-publish":true,"permalink":"/exellian-isles-mystics/the-exellian-mystics/"}
+{"dg-publish":true,"permalink":"/exellian-isles-mystics/the-exellian-mystics/","noteIcon":""}
 ---
 
 Live in [[Exellian Isles, Mystics/The Exellian Mystics\|The Exellian Mystics]]
