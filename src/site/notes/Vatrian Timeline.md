@@ -169,6 +169,9 @@
 **852 Post Mortem**
 - Elqroque d'e Mel is born along the Aortic River to an unknown father, and a mother who died on childbirth. He is placed into an adoption service for various militaries and organizations in Herria to draw upon. He is pulled on by the FMC Expeditionary Forces
 
+**859 Post Mortem**
+- Noel Chupacabra is born.
+
 **860 Post Mortem**
 - The First Reesian Offensive pushes into Reese, establishing Lateria and New King's Bounty. Colloquially called the Boran Foothold
 
@@ -191,6 +194,7 @@
 - The Mystics Expeditionary Force of the FMC launches their 13th mission.
 	- von Paten is secured from Site XI the night 38 hours after the incident, and 153 hour after launch.
 - After falling into the Mnemonic Abyss with an incident from a Pterocaligo, Oma Twain is the first to survive complete absorption by it. She is marked, and as she emerges, so too does the Mortal Forge.
+- 
 
 **870 Post Mortem**
 - Many native species rally during a lull in the Offensive, and launch The Farmer's Insurrection, from 13 Deismo to 14 Calluo. Led and organized by Noel Chupacabra, this revolt majorly halted progress, and is the reason why the Second Offensive took so long. It is also credited to the reason Charwood natives were able to hold until the Third Reesian Offensive.
