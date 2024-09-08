@@ -2,7 +2,7 @@
 {"dg-publish":true,"permalink":"/exellian-isles-mystics/wytherium-engine/"}
 ---
 
-A powerful creation that focuses a [[Exellian Isles, Mystics/Keviah (Rank)\|Keviah (Rank)]] into the timestreams to be guided by [[Wytherius\|Wytherius]]
+A powerful creation that focuses a [[Exellian Isles, Mystics/Keviah (Rank)\|Keviah (Rank)]] into the timestreams to be guided by [[Deities/Wytherius\|Wytherius]]
 One is housed on [[Exellian Isles, Mystics/The Exellian Isles\|The Exellian Isles]]
 Conceived by [[Exellian Isles, Mystics/The Exellian Mystics\|The Exellian Mystics]]
 There is one makeshift one on Reese forged by Tytheradt; and a prototype Wytherius made, that is stashed in Renlyamore Manor. 
