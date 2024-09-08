@@ -2,7 +2,7 @@
 {"dg-publish":true,"permalink":"/hated-chosen/"}
 ---
 
-The Hated Chosen are those who undergo a pact with [[Some Characters/Daenogoth\|Daenogoth]]. In exchange for powers, they give him an eye and are given an Osteooculus. Daenogoth ultimately uses the Hated Chosen to gain power and attempt to find an Ephialtes.
+The Hated Chosen are those who undergo a pact with [[Deities/Daenogoth's Lie\|Daenogoth's Lie]]. In exchange for powers, they give him an eye and are given an Osteooculus. Daenogoth ultimately uses the Hated Chosen to gain power and attempt to find an Ephialtes.
 
 When someone becomes a Hated Chosen, they are marked when acting according to Daenogoth's interests. When fully marked, Daenogoth may bring them to Burbraic to ascend them.
 
