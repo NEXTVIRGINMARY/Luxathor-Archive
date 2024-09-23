@@ -35,3 +35,9 @@ When marked, if his Hated Chosen die before being fully marked, they blossom int
 Once fully marked, upon their death they will be consumed by Daenogoth, harbored as energy for hatred to feed him. Their bodies will grow slight *Flacielia rigorium*, and their husks will be used fully by Daenogoth, who will puppet them to farm more power. Alternatively, he will take a fully marked one to his great objective.
 
 His goal is to harbor a Hated Chosen who will break the runes that Sil-Ahn's blood holds him by, and unleash him. Here, the Hated Chosen will ascend to The Ephialtes, and they will rule as supremely powerful individuals.
+
+As of 28 Rthna 889, Daenogoth succeeded, as his Ephialtes began efforts to free him. The allies of the Ephialtes were resistant, though, and plunged into Daenogoth to attempt to destroy him.
+
+Inside, he fed them lies upon lies. His first: Artex Nightfang. When the Heroes took the plunge, some of the Burbraic pensioners gained sentience. Artex was among them. Understanding what was happening, he recruited the dwarf to keep the party complacent.
+
+After 7 days in the Inland Empire, and 35 days in reality, Daenogoth was killed.
