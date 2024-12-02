@@ -20,7 +20,7 @@ Here, he communed with [[The Quintessential Pair/The Progenitor\|The Progenitor]
 
 He would rule for 10 years as the Emperor, who would lead the Zenithene Empire into its Golden Age. In 723, he made an announcement overnight that the Demarcation disappeared from him mysteriously, and would leave the Empire to whoever now had it. Before his disappearance, he would steal a not-insignificant amount from the reserves. 
 
-Shortly after, he would reemerge and purchase the son of the Atilan crown, who had been enslaved. This serpent would go on to be his [[Atilus/The Retainer\|Retainer]]
+Shortly after, he would reemerge and purchase the son of the Atilan crown, who had been enslaved. This serpent would go on to be his [[Atilus/Cicero\|Retainer]]
 
 Staying alive and continuing his journey to perfecting Lichdom, he would be laying low until the 840s. Through immersion in the unconscious, he would find that his brother was nearly fully remade in the untouched continent of Reese. Tytheradt would name Reese during the following campaign, dubbing it the word for crown in the Exellian language. His plans aligned, and Reese would be the crown cementing his power. Using what remained from his reserve heist, he would start the FMC, and would venture into Reese alone to find what he was told would change the world - Radium.
 
