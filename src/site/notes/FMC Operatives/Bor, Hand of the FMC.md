@@ -10,7 +10,7 @@ He would learn a lot in this childhood, his ruthlessness and cruel nature being 
 
 Come 843 PM, Bor would encounter someone who truly understood him. [[Tytheradt\|Tytheradt]] would land in Reese, and their paths would cross. Tytheradt would explain his plan and his need for a physical enforcement proxy, and would gift Bor advanced weaponry. In this man, Bor saw the rest of his life.
 
-In 846, Bor would go to Herria with Tytheradt and [[Atilus/The Retainer\|The Retainer]]. At [[The Thon'sahd Ball\|The Thon'sahd Ball]], Bor would meet many elites and through his polite persona, would assist in securing the FMC's future.
+In 846, Bor would go to Herria with Tytheradt and [[Atilus/Cicero\|Cicero]]. At [[The Thon'sahd Ball\|The Thon'sahd Ball]], Bor would meet many elites and through his polite persona, would assist in securing the FMC's future.
 
 Over the next decades, Bor would be involved in the FMC-sponsored conquest over Reese. Within the Offensives, he would wear a heavy steel mask on his face, leather armor adorned with the bones of natives on his horse side, and plate armor with a painted red hand sigil on his chest. His weapon during this time was a semi-automatic rifle with a shotgun under-barrel component named Brenhilder, something as close to his mother's name that he could find. After the completion of the Second Offensive, Bor would transition to securing the land gained in the FMC's offensive.
 
@@ -21,6 +21,8 @@ While he was the law, Bor would bring about the Freelancer program. By hiring th
 The program worked wonders. Things like the FMC-backed von Paten Brigade, run by [[FMC Operatives/Edvard von Paten\|Edvard von Paten]] took down massive military transports, and people like [[The Inheiritors/Noel Chupacabra\|FL-04]] could break government officials into spilling out information like nothing.
 
 Eventually, Bor received a direct order from Tytheradt. While communication wasn't totally uncommon, strict orders were quite the rarity. Tytheradt told Bor that Noel Chupacabra had become far, far too dangerous. He began [[The Inheiritors/The Inheiritors (Group)\|an insurgency network]] , and it had to be pared before it grew, and it must be made an example of. So Bor took him into the [[Reese Locations/Dust District\|Dust District]], and ruined him while the area went aflame. In the fight, Bor found his gun began shattering strangely, as if it was being telekinetically crushed, so he took Noel's twin guns and combined them beneath [[Reese Locations/Rhodes\|Rhodes]].
+
+This order was truly issued due to Noel's choosing by the [[Lelki Coagulate\|Lelki Coagulate]]. Tytheradt feared it, and had to stomp it out before it became an issue. 
 
 In these years, Bor was happy. He felt like he actually had a father: Tytheradt was like him but more. More sadistic and dangerous. More potent in his friendly, loved facade. More ambitious in his hunt for power. However, this joy came to a screeching halt upon the arrival of the heroes.
 
