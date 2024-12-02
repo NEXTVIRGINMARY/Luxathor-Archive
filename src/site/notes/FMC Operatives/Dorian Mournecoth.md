@@ -4,7 +4,7 @@
 
 Dorian Mournecoth, born Dir Ean Lang, was a drow native to the Wrathcarved in Reese. Sometime during his late teens, his brother Wou Ief Lang disappeared without a trace. Dorian joined the FMC during the First Offensive to try to find his brother. Initially, this was meant to be a short enrollment until Wou Ief's fate was found, but Dorian got too caught up in it all, and is in too deep.
 
-After the First Offensive, Dorian would be promoted to the rank of Blood Guard, as per standard. He chose to stay in Rhodes to join the FMC Brass. He rose the ranks, becoming the Head Overseer of the mining town, until the crash. Afterwards, when FMC thinned its rule on the city, he would be in a higher up secretarial position, still bowing down to [[FMC Operatives/Bor, Hand of the FMC\|Bor]] and some [[FMC Operatives/Notable FMC Figures\|Notable FMC Figures]]. 
+After the First Offensive, Dorian would be promoted to the rank of Blood Guard, as per standard. He chose to stay in Rhodes to join the FMC Brass. He rose the ranks, becoming the Head Overseer of the mining town, until the Crash. Afterwards, when FMC thinned its rule on the city, he would be in a higher up secretarial position, still bowing down to [[FMC Operatives/Bor, Hand of the FMC\|Bor]] and some [[FMC Operatives/Notable FMC Figures\|Notable FMC Figures]]. 
 
 He gave up on his brother, after some time. In spite of his more relax position, he decided: he wanted to be a part of it, no matter what "it" was.
 
