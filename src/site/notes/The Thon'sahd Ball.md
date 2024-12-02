@@ -6,7 +6,7 @@
 
 After Tytheradt became afflicted with Reeserot, he came to understand how much harder the combing of Reese would be alone. He could not find his brother without some support. It was from this decision he would recover an artifact and establish relations with [[FMC Operatives/Bor, Hand of the FMC\|Bor, Hand of the FMC]].
 
-After an extensive meeting at Site XI with Bor and [[Atilus/The Retainer\|The Retainer]], the plan was made. Through utilizing the artifact as an engine for a flying airship, Bor and The Retainer would present the findings of Thyra Wesson, who was too ill to make it. They would bargain for investments for Wesson's company: The Frontier Mining Company. The FMC would unearth more of this resource - Radium - and would distribute it 
+After an extensive meeting at Site XI with Bor and [[Atilus/Cicero\|Cicero]], the plan was made. Through utilizing the artifact as an engine for a flying airship, Bor and The Retainer would present the findings of Thyra Wesson, who was too ill to make it. They would bargain for investments for Wesson's company: The Frontier Mining Company. The FMC would unearth more of this resource - Radium - and would distribute it 
 
 The FMC would accumulate over 80 million gold from various investors in Herria and Crescens, and from the Thon'sahd Ball, begin their warpath that now threatens so many.
 
