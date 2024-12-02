@@ -23,7 +23,7 @@ The prison is called The Depths of Lro. There is a small domed pavilion that has
 - Prostranost District
 - Radnik Cliffs
 - Keviahn Impasse
-	- The Keviahn Impasse was an old fortification that was found upon their landing. A surprisingly intact dam, the first landers stepped onto it. During an attack by the Apostate Sept, a group of less secretive, more flash and awe [[Exellian Isles, Mystics/The Exellian Mystics\|The Exellian Mystics]] and predecessors to the [[Exellian Isles, Mystics/The Engram Assassins\|The Engram Assassins]], this wall withstood much magic artillery, and was named the Keviahn Impasse.
+	- The Keviahn Impasse was an old fortification that was found upon their landing. A surprisingly intact dam, the first landers stepped onto it. During an attack by the Apostate Sept, a group of less secretive, more flash and awe [[Exellian Isles, Mystics/The Exellian Mystics\|The Exellian Mystics]] and predecessors to the [[Exellian Isles, Mystics/The Engram Assassins\|The Engram Assassins]], this wall withstood much magic artillery, and was named the Keviahn Impasse, in honor of the one who broke away.
 - Izsollarum Crag
 - Skriven Ports
 - Izsdasan Ports
