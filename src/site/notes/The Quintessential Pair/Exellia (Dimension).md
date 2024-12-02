@@ -9,3 +9,5 @@ Inside, this realm was a mirror, keeping The Unraveler captive by chaining it to
 The most notable part of this realm is The Silver Sea. An ever-stretching expanse of near-perfectly reflective liquid, the Unraveler would suffer many facets of itself being near-drowned in it, as a mirror kept those too down. One Solar guarding Exellia went to chart the Silver Sea, and still has yet to return. 
 
 In the middle of the Silver Sea is Ayala - an island of clumbing brown-grey sand. It is on this island that the truest body of the Unraveler was concentrated - up until it's escape.
+
+Exellia is the capstone of the end. All other afterlives sit beneath the Silver Sea, preserved in its mirroring waters. Above the Silver Sky, all realities lie, oiled by its mirroring waters. Between, however, lies Exellia. Neither frozen nor lubricated, Exellia is a terrible realm meant for only the Unraveler.
