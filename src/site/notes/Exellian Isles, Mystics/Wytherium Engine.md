@@ -2,7 +2,7 @@
 {"dg-publish":true,"permalink":"/exellian-isles-mystics/wytherium-engine/"}
 ---
 
-A powerful creation that focuses a [[Exellian Isles, Mystics/Keviah (Rank)\|Keviah (Rank)]] into the timestreams to be guided by [[Deities/Wytherius\|Wytherius]]. There are 3 known of in Vatria - one housed at the heart of [[Exellian Isles, Mystics/The Exellian Isles\|The Exellian Isles]], a makeshift one on Reese that was forged by [[Tytheradt\|Tytheradt]] and held in [[Reese Locations/The Obsidian Aeroes\|The Obsidian Aeroes]], and a prototype abandoned by [[Deities/Wytherius\|Wytherius]] stashed away in Renlyamore Manor.
+A powerful creation that focuses a [[Exellian Isles, Mystics/Keviah (Rank)\|Keviah (Rank)]] into the timestreams to be guided by [[Deities/Divinities/Wytherius\|Wytherius]]. There are 3 known of in Vatria - one housed at the heart of [[Exellian Isles, Mystics/The Exellian Isles\|The Exellian Isles]], a makeshift one on Reese that was forged by [[Tytheradt\|Tytheradt]] and held in [[Reese Locations/The Obsidian Aeroes\|The Obsidian Aeroes]], and a prototype abandoned by [[Deities/Divinities/Wytherius\|Wytherius]] stashed away in Renlyamore Manor.
 
 This engine of interface was conceived by [[Exellian Isles, Mystics/The Exellian Mystics\|The Exellian Mystics]]. Originally an object of worship, with their ritual during the Martyrdom Syzygy, it granted them direct connection to Wytherius. 
 
