@@ -28,9 +28,9 @@ Her lust for life would return, changed. A lust for something long gone, and at 
 
 She knew her time was running out. She couldn't be here forever, especially when the FMC had a new dispatch that had tech built to counteract her. Their disposal swords, sharp as razors, cut through any beast she would be able to ride, and their hip-mounted grappling system allowed them overwhelmingly exceptional movement, only increased by their lateral thrusts with gas. She knew of Noel's triumph: his being Chosen. Perhaps...
 
-She began to set a plan into motion. Her son would be the embodiment of the Inheritor. First, she would design relics in the image of their [[The Lelki Coagulate\|Mother]], imbued with ancient magic of the early Ahn-Kiin hives. They were named Fushigi. 7 of them would be scattered across their land. Anastasia made them so that when they would be gathered, they would create a formation meant to invoke [[Reese Locations/Duelian\|Duelian]], highlighting Brauk-Her-Ahn. 
+She began to set a plan into motion. Her son would be the embodiment of the Inheritor. First, she would design relics in the image of their [[Deities/Empyreans/The Lelki Coagulate\|Mother]], imbued with ancient magic of the early Ahn-Kiin hives. They were named Fushigi. 7 of them would be scattered across their land. Anastasia made them so that when they would be gathered, they would create a formation meant to invoke [[Reese Locations/Duelian\|Duelian]], highlighting Brauk-Her-Ahn. 
 
-She would then descend into their ancestral hive. Duelian had already begun their efforts downward, but that would prove no trouble to The Mirage. She entered Brauk-Io, and moved through its streets into its heart. In front of its council, she would petition for [[PCs/Serendipitous Chupacabra\|The Inheritor]], demanding his potential be recognized, respected, and written. They would give into her threats and orders, and when the One She Spoke of entered, he would be [[The Lelki Coagulate\|ushered to Fa.]]
+She would then descend into their ancestral hive. Duelian had already begun their efforts downward, but that would prove no trouble to The Mirage. She entered Brauk-Io, and moved through its streets into its heart. In front of its council, she would petition for [[PCs/Serendipitous Chupacabra\|The Inheritor]], demanding his potential be recognized, respected, and written. They would give into her threats and orders, and when the One She Spoke of entered, he would be [[Deities/Empyreans/The Lelki Coagulate\|ushered to Fa.]]
 
 After some time building up more alliances and revolutionary groups, something whispered a revelation in her ear. Her Noel was alive. Infected by Reeserot and held captive by the FMC, yes, but alive. 
 
@@ -46,7 +46,7 @@ As the Rot spilled into her, the body of Anastasia Chupacabra rapidly decayed, b
 
 And thus, Anastasia was no more.
 
-[[The Grey Mistress\|Until she was.]]
+[[Deities/Empyreans/The Grey Mistress\|Until she was.]]
 
 Her conscious would awake in the vestiges of Rot, feeling it teeming through her, using her as a conduit to further its mutation and evolution. She would stay this way for what felt like an eternity - until her mission came back to her. They were relying on her. Noel was still in there and the door was not yet open. What Once Was Anastasia Chupacabra fought back, and her willpower carved a space out for her.
 
