@@ -14,7 +14,7 @@ About 3 years in, Orrous fell Comatose.
 
 In 889 PM, with the arrival of [[The Sewer Rats\|The Sewer Rats]], Doctor Morton would acquire the final ingredient for his cure. He immediately began brewing his cure. When administered, his son would awaken. Mutated and changed, yes, but cured.
 
-Quietly, Orrous held a secret. During his time comatose, he was not alone. He was with [[The Grey Mistress\|The Whisper Within]]. She was guiding him, whispering truths and revelations and secrets. She showed him what he would be capable of. And in 17 years he awoke.
+Quietly, Orrous held a secret. During his time comatose, he was not alone. He was with [[Deities/Empyreans/The Grey Mistress\|The Whisper Within]]. She was guiding him, whispering truths and revelations and secrets. She showed him what he would be capable of. And in 17 years he awoke.
 
 And She did not stop. 
 
@@ -36,7 +36,7 @@ Orrous believed his Father would never let his Son become This. He was right. So
 
 Then, not too long after, Orrous feels someone he is distantly connected to die. The Sewer Rats have slaughtered Auphreite, and the Whisper Within cries out. She tells him he must "Go Up," and she would tell him the truth.
 
-Orrous would "go up," and in The Above, would commune with [[The Grey Mistress\|The Grey Mistress]]. She and him would discuss, and he would become the Conduit of Rot, but would agree to hold out on pouring out Rot, but he would make it up.
+Orrous would "go up," and in The Above, would commune with [[Deities/Empyreans/The Grey Mistress\|The Grey Mistress]]. She and him would discuss, and he would become the Conduit of Rot, but would agree to hold out on pouring out Rot, but he would make it up.
 
 Orrous returns to Rhodes, changed, and tells his father he needs to "touch the sky." Orrous then leaves. In hysterics, Doctor Morton breaks down.
 
