@@ -12,4 +12,4 @@ After the FMC break-in, Bor threatened to send him into servitude for his misste
 
 He would die in these attacks.
 
-The Heart he smuggled was crucial in FMC tests, and even moreso to the God it belonged to. His death landed it in the hands of the party, who would place it into [[Deities/Wytherius\|Wytherius]]' grasp. Perhaps Dir Ean Lang will be one of the crucial elements in the chain of events that destroys that which took him and his brother from this world, and free his nation.
+The Heart he smuggled was crucial in FMC tests, and even moreso to the God it belonged to. His death landed it in the hands of the party, who would place it into [[Deities/Divinities/Wytherius\|Wytherius]]' grasp. Perhaps Dir Ean Lang will be one of the crucial elements in the chain of events that destroys that which took him and his brother from this world, and free his nation.
