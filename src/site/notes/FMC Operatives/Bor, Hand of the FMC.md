@@ -22,7 +22,7 @@ The program worked wonders. Things like the FMC-backed von Paten Brigade, run by
 
 Eventually, Bor received a direct order from Tytheradt. While communication wasn't totally uncommon, strict orders were quite the rarity. Tytheradt told Bor that Noel Chupacabra had become far, far too dangerous. He began [[The Inheiritors/The Inheiritors (Group)\|an insurgency network]] , and it had to be pared before it grew, and it must be made an example of. So Bor took him into the [[Reese Locations/Dust District\|Dust District]], and ruined him while the area went aflame. In the fight, Bor found his gun began shattering strangely, as if it was being telekinetically crushed, so he took Noel's twin guns and combined them beneath [[Reese Locations/Rhodes\|Rhodes]].
 
-This order was truly issued due to Noel's choosing by the [[Lelki Coagulate\|Lelki Coagulate]]. Tytheradt feared it, and had to stomp it out before it became an issue. 
+This order was truly issued due to Noel's choosing by the [[Deities/Empyreans/Lelki Coagulate\|Lelki Coagulate]]. Tytheradt feared it, and had to stomp it out before it became an issue. 
 
 In these years, Bor was happy. He felt like he actually had a father: Tytheradt was like him but more. More sadistic and dangerous. More potent in his friendly, loved facade. More ambitious in his hunt for power. However, this joy came to a screeching halt upon the arrival of the heroes.
 
