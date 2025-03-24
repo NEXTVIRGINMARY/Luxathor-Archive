@@ -2,7 +2,7 @@
 {"dg-publish":true,"permalink":"/reese-locations/elphons-keep/"}
 ---
 
-Northeast of Rhodes, directly east of Charwood, there sits a lone fort. Sat to bear the future for millennia, Elphons' Keep has only known occupants thrice. At it's heart: The Shrine of Time, an altar to the ancient god of memory Uiy. Not even the Prophesized would have built this shrine, it willed itself on its own, a symbol of one of [[Deities/The Vetus Six\|The Vetus Six]].
+Northeast of Rhodes, directly east of Charwood, there sits a lone fort. Sat to bear the future for millennia, Elphons' Keep has only known occupants thrice. At it's heart: The Shrine of Time, an altar to the ancient god of memory Uiy. Not even the Prophesized would have built this shrine, it willed itself on its own, a symbol of one of [[Deities/Divinities/The Vetus Six\|The Vetus Six]].
 - Once, in Progenitorian time, for 3 years [[The Quintessential Pair/The Prophesized\|The Prophesized]] occupied their keep. The Cataclysm evicted them in time.
 - Second, in 519 to 522 PM, by local Daer. The Daer no longer exist.
 - Finally, in 863 to 866 PM, by FMC before the Second Offensive. The sole survivor of this battalion was [[FMC Operatives/Baron Marques Grildvalke of Duelian\|Baron Marques Grildvalke of Duelian]] 
