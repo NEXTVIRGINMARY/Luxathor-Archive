@@ -6,4 +6,4 @@ Keviah is the lost brother of [[Tytheradt\|Tytheradt]], who confronted him drama
 
 In mid-889 PM, Keviah would reawaken, the only thing left that he remembered would be Keviah - what he thought to be his name. He awoke with Longclaw - a piece of contaminated Living Metal from [[Tytheradt\|Tytheradt]] to mold it into a Sword-Key. Longclaw has since gone through three iterations.
 
-Keviah currently has a leopard-print suit, pollinator pants, and an osteoculus from killing [[Deities/Daenogoth\|Daenogoth]]. 
+Keviah currently has a leopard-print suit, pollinator pants, and an osteoculus from killing [[Deities/Divinities/Daenogoth\|Daenogoth]]. 
