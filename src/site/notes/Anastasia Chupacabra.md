@@ -12,7 +12,7 @@ As she settled into this new persona, the Offensives would carry on, pushing out
 
 Noel would enter into the FMC, and she would promise to maintain the bonds forged in the Farmer's Insurrection. Much of her skills with people would be form in this time, spinning a web. Simultaneously, she was able to relax, and grow healthy once again in her home, [[PCs/Serendipitous Chupacabra\|spinning a different kind of web]].
 
-Following this, she would use her newfound lust for life to foster life. After establishing [[The Inheiritors/The Inheiritors (Group)\|a clandestine cell network]] and handing it to Noel, she would work as a teacher in the local town of [[Reese Locations/Rhodes\|Rhodes]], raising the next generation outside of the flag of the FMC. In her free time, when needed, she would work as a field medic for revolutionary acts, treating the current generation so they may keep burning the flag of the FMC.
+Following this, she would use her newfound lust for life to foster life. After establishing [[The Inheiritors/The Inheritors (Group)\|a clandestine cell network]] and handing it to Noel, she would work as a teacher in the local town of [[Reese Locations/Rhodes\|Rhodes]], raising the next generation outside of the flag of the FMC. In her free time, when needed, she would work as a field medic for revolutionary acts, treating the current generation so they may keep burning the flag of the FMC.
 
 This life - a cycle of family, education, medicine - would not last forever. Soon, her husband would be gone. He disappeared. [[FMC Operatives/Bor, Hand of the FMC\|Bor, Hand of the FMC]], would make his claims fact: Noel Chupacabra had fallen off a cliff. 
 
@@ -22,7 +22,7 @@ Once again, she was alone.
 
 Her life would fly by here, as she withdraw from everything. She would rot as she waited for him to return, leaving her son to his own devices. All would be abandoned, until she had a realization. If the Inheritors were still running, this wasn't an accident. It was a murder. 
 
-A failsafe was put in place, she was sure. No longer was [[The Inheiritors/The Progenitor (Inheiritor)\|The Progenitor]] organizing it all. Surely if it was an accident, they would make the mantle the same. No. This was different. Her husband had been killed by the FMC.
+A failsafe was put in place, she was sure. No longer was [[The Inheiritors/The Progenitor (Inheritor)\|The Progenitor]] organizing it all. Surely if it was an accident, they would make the mantle the same. No. This was different. Her husband had been killed by the FMC.
 
 Her lust for life would return, changed. A lust for something long gone, and at the same time, a lust for revenge. She knew she had already failed her son, so she left. She began to withdraw, and took up spinning a web yet again. In the North Wrathcarved, a group of revolutionaires calling themselves [[Samus L'ebarge\|The Apollodorans]] had been a presence for a while. They were a group built on the desire to return to the way of Corinthian life - Reese before it was called Reese.  She would tap into them, and help their leadership mold into the Ravagers.
 
