@@ -10,7 +10,7 @@ He was scouted for the FMC, and his placements spelled good fortune for him. He 
 
 After this incident, he was relieved from the MEF, but kept as an Freelancer for the FMC. During this time, he lived as an outlaw, the head of the von Paten Brigade, and would alternate between lucrative robberies, and dangerous political missions. After an incident about 3 years ago, Eddie ceased his brigade, and pivoted to being a loan shark, with massive interest rates.
 
-This change would happen after [[The Inheiritors/Noel Chupacabra\|Noel Chupacabra]] would tell him about a [[The Inheiritors/The Inheiritors (Group)\|clandestine insurgency network]] he was building over drinks.  Somehow, [[FMC Operatives/Bor, Hand of the FMC\|Bor, Hand of the FMC]] caught wind of the happening, and started to torture Noel, before parading his ruined body, recently plagued with Reeserot, to all the Freelancers.
+This change would happen after [[The Inheiritors/Noel Chupacabra\|Noel Chupacabra]] would tell him about a [[The Inheiritors/The Inheritors (Group)\|clandestine insurgency network]] he was building over drinks.  Somehow, [[FMC Operatives/Bor, Hand of the FMC\|Bor, Hand of the FMC]] caught wind of the happening, and started to torture Noel, before parading his ruined body, recently plagued with Reeserot, to all the Freelancers.
 
 This set them all straight.
 
