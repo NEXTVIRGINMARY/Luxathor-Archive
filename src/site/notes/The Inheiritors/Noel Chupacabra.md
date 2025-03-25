@@ -22,7 +22,7 @@ In the FMC, he gained knowledge and intel pertaining to their operations. He war
 
 In 881, after the Third Offensive began, many veterans of the Farmer's Insurrection became upset at Noel's lack of action. Eu Spouldi, a Thri-Kreen who spread a racist "Manifest Destiny"-esque manifesto, was killed in retaliation by the disgruntled farmers. In response, the FMC does their most public murders, destroying all of Farming Sector A and killing all inhabitants. This event killed nearly 4 thousand natives, and destroyed large swathes of farmland. 
 
-After witnessing these, and talking Bor into stopping the FMC from destroying all Farming Sectors, Noel would take action. After gathering intel for 3 years, he would take the pseudonym [[The Inheiritors/The Progenitor (Inheiritor)\|The Progenitor]], and start [[The Inheiritors/The Inheiritors (Group)\|The Inheritors]]. Over 4 years, he would run this clandestine cell operation, striking down the FMC repeatedly.  
+After witnessing these, and talking Bor into stopping the FMC from destroying all Farming Sectors, Noel would take action. After gathering intel for 3 years, he would take the pseudonym [[The Inheiritors/The Progenitor (Inheritor)\|The Progenitor]], and start [[The Inheiritors/The Inheritors (Group)\|The Inheritors]]. Over 4 years, he would run this clandestine cell operation, striking down the FMC repeatedly.  
 
 In 885 PM, the scheming would come to a head. Noel would go to [[Reese Locations/Duelian\|Duelian]], sneaking through the ongoing war, and descend into Brauk-Her-Ahn. What he did here has been lost to time.
 
