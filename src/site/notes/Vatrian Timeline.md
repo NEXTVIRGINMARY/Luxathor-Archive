@@ -243,7 +243,7 @@
 **886 Post Mortem**
 - Tytheradt scries on Noel Chupacabra's blood, and discovers his psionic abilities. Under guise of it being the Inheritors, Bor is deployed to make him an example, and all other Freelancers are set in line.
 -  von Paten Brigade is disbanded.
--  The Inheiritors' leadership switches to [[The Inheiritors/The Unraveler (Inheiritor)\|The Unraveler (Inheiritor)]] after contact with [[The Inheiritors/The Progenitor (Inheiritor)\|The Progenitor (Inheiritor)]] is lost
+-  The Inheiritors' leadership switches to [[The Inheiritors/The Unraveler (Inheritor)\|The Unraveler (Inheritor)]] after contact with [[The Inheiritors/The Progenitor (Inheritor)\|The Progenitor (Inheritor)]] is lost
 
 **888 Post Mortem**
 - **Auros**: Rickshaw Gang is built
