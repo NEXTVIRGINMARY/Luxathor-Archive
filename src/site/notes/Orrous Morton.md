@@ -28,7 +28,7 @@ Once obtained, he would return home. In Reese, he would begin working on strikin
 
 And the the Scorching occurred.
 
-He fought hard alongside [[The Inheiritors/The Inheiritors (Group)\|The Heroes]] and their allies, but it wasn't enough. The town was heavily damaged, and so was he. His father would find him unconscious, hiding in an alleyway, and would quickly drag him home, enraged.
+He fought hard alongside [[The Inheiritors/The Inheritors (Group)\|The Heroes]] and their allies, but it wasn't enough. The town was heavily damaged, and so was he. His father would find him unconscious, hiding in an alleyway, and would quickly drag him home, enraged.
 
 Once Orrous awoke, the years unspoken blew up on them. The Doctor believes Orrous was putting himself and the town at risk. Tortles are practically immortal, but have a terribly weak immune system, and he had contracted the Rot not once but twice now. The only reason he is still alive is because of all the time and money the Doctor spent caring for Orrous, and the miracle that the others brought what he needed. Not only that, but if Reeserot spreads through Rhodes, then the Inheritors will have to choose where to pool funding, and these people will die after all the stress they've gone through.
 
