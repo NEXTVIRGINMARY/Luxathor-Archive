@@ -2,7 +2,7 @@
 {"dg-publish":true,"permalink":"/decrypted-fmc-files/missive-from-ryuit-frellor-a-3/"}
 ---
 
-Missive from Ryuit Frellor, dated 20 Uphyxos 888. Addressed from Ryuit Frellor to Halshire Maughdry, Oolien Lockheed; duplicate submitted to H. Hanburg for archival purposes. Text as follows:
+Missive from Ryuit Frellor, dated 20 Uphyxos 888. Addressed from Ryuit Frellor to Halshire Maughdry, Halifax Lockheed; duplicate submitted to H. Hanburg for archival purposes. Text as follows:
 
 Ryuit Frellor, addressing a missive to Directors of Lockheed-Maughdry corporation:
 
